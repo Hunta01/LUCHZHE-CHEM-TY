@@ -1,0 +1,2 @@
+# LUCHZHE-CHEM-TY
+ 1Гб  и 3G
